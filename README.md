@@ -128,4 +128,4 @@ Nenhuma métrica de ganho é divulgada, porque não há medição validada para 
 
 ## Contato
 
-[LinkedIn](https://www.linkedin.com/in/danilo-silva-3303b912b/) · danilovsilva99@gmail.com
+[LinkedIn](https://www.linkedin.com/in/danilo-vieira-3303b912b/) · danilovsilva99@gmail.com
